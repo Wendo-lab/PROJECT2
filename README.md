@@ -23,7 +23,7 @@ Analysis reveals low overall yields, far below national potentials, due to droug
 
 Districts like Nakapiripirit and Kaabong show the lowest per capita production , indicating acute insecurity.
 
-Total regional production covers only few months of self-sufficiency, aligning with chronic deficits.
+Total regional production covers only a few months of self-sufficiency, aligning with chronic deficits.
 
 Business recommendation
 
